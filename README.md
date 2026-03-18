@@ -1,0 +1,1 @@
+# Ransoware_simulado-Criptografia-de-arquivos-
